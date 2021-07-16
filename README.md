@@ -1,1 +1,1 @@
-# rsschool-cv
+https://egorchem.github.io/rsschool-cv/cv
